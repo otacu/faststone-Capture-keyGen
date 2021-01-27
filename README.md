@@ -1,0 +1,1 @@
+### 截图软件Faststone-Capture注册码生成
